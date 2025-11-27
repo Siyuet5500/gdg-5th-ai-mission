@@ -1,0 +1,1 @@
+https://velog.io/@siyuet_5064/AI-%EB%AF%B8%EC%85%98%EC%BD%94%EC%8A%A4-1%EC%A3%BC%EC%B0%A8-WIL
